@@ -1,1 +1,1 @@
-# summer_school_assignments
+# Summer School Assignments
